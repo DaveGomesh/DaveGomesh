@@ -1,5 +1,13 @@
-### Hi there 👋
+### Hi there! :wave:
+### Who are you? :open_mouth:
 
+- It's dark... :nine::warning::five::arrow_up_small::five::five::arrow_up_small::five::five::five::arrow_up_small::five::five::five::arrow_down_small:
+- It's obscure... :apple:
+- I'm fine! Don't help me... :dancers:
+- Just smile! :joy::joy::joy::sob::joy:
+
+## 111111111111111111(19)911111111111111111111111111111111111111111111111111111111111111111111111111111111
+`Say yes to respect!`
 <!--
 **DaveGomesh/DaveGomesh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
